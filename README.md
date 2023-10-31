@@ -10,4 +10,5 @@ Meu nome é Nathaly
 nathaly.engel.silva@escola.pr.gov.br
 
 
-![](https://media.tenor.com/0ZGvPoBjMZkAAAAd/pigs-cute.gif)
+![]![image](https://github.com/nathyengel/nathyengel/assets/148909321/233230da-b186-460c-87f3-7eb757c0ce0a)
+
